@@ -34,7 +34,7 @@ Para más información, puede comunicarse a través de:
 
 **Representaciones GSP**  
 RIF: V-04380784-2  
-Email: [tu-email@dominio.com]  
-Teléfono: [número de contacto]
+Email: carlos.saldivia.developer@gmail.com
+Teléfono: +58424-5188128
 
 ---
